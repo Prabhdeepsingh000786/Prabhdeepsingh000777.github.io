@@ -26,7 +26,8 @@ On the seventh day of our introduction program we firstly intereacted with Er.ka
 On the eighth day, we had an interaction with the respected former principal Dr. S.B. Singh. He instructed us to write about the following things: 
 1. *our strength*
 2. *our weakness*
-3. *our dream in life*      
+3. *our dream in life*
+     
 Our Favourite Sport and many more things that helped us evaluate ourselves. After him, we interacted with Dr. Pushpinder Singh. We then had a discussion about sustainability and received a good message about sustainability.
 
 ## Day 9 
